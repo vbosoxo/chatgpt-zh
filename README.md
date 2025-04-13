@@ -1,6 +1,6 @@
-# 【2025年4月11日更新】ChatGPT中文版｜国内 ChatGPT 镜像网站免费推荐（支持 GPT-4、GPT-o1、GPT-o3、Deepseek、Grok3）
+# 【2025年4月13日更新】ChatGPT中文版｜国内 ChatGPT 镜像网站免费推荐（支持 GPT-4、GPT-o1、GPT-o3、Deepseek、Grok3）
 
-> 更新时间：2025/04/11
+> 更新时间：2025/04/13
 
 全面讲解 ChatGPT 中文版的国内使用方法，为用户推荐无需翻墙的镜像网站。
 
